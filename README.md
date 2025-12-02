@@ -1,10 +1,10 @@
-### Hi there, I'm chakradhar - aka [anon_hide] 👋 
+### Hi there, I'm chakradhar  👋 
 
 ## I'm a Developer!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2025 Goals: Contribute more to Open Source projects
+- 🥅 2026 Goals: Contribute more to Open Source projects
 
 ### Connect with me:
 
